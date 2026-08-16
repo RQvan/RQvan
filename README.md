@@ -1,5 +1,5 @@
 - |ω・）A general puppy
-- n(｡•̀ᴗ-) rqvan.top
+- n(｡•̀ᴗ-) r▉▉▉▉.t▉▉
 - (｢･ω･)｢ rqvanzero@gmail.com
 - ∠(ᐛ」∠) It's time to fish!
 
